@@ -1,1 +1,1 @@
-desenvolver funcionalidades
+desenvolver funcionalidadess
